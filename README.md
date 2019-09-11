@@ -5,6 +5,10 @@
 
 * FiraCodePingFang-Retina.ttf FiraCode和PingFang的混合字体  https://www.lanzous.com/i6488ja
 
+## 软件:
+
+* FontCreator11破解版 https://www.lanzous.com/i648gji
+
 
 ## 书籍:
 
